@@ -1,0 +1,2 @@
+# mamy-tvoy
+maty mertva
